@@ -1,0 +1,1 @@
+first take a bowl and pour choco powder and then pour half cup suger and butter and mix it properly when you mix it then put two or three eggs and put it in microwave and leave it for some time after 5 or 10 minute take it out now your cake is ready.
